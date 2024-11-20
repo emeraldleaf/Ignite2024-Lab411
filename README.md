@@ -13,3 +13,9 @@ In this lab, you’ll work through four hands-on exercises designed to build you
 To get started, fork this repository to your GitHub account. Detailed instructions for each exercise are available in the `LabInstructions` folder.
 
 Happy learning!
+
+
+https://aka.ms/sidecarsupport
+ea0a70ee-af34-4ec4-a051-93e7d15a5f15
+User1-45922339@LODSPRODMCA.onmicrosoft.com
+S+8e!rN0Dq
